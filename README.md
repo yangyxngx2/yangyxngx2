@@ -1,6 +1,6 @@
 # FIX ON
 <p align="center">
-# Yang / saps - %!
+# Yang / Jju - %!
 
 <!--
 **Yeonjunzin/Yeonjunzin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -20,7 +20,7 @@
 <img width="550" src="https://files.catbox.moe/zf9oj3.jpg">
 
 <p align="center">
-or I.n / egg </p>
+or I.n / saps </p>
 <p align="center"> <a href="https://f1x-0n.carrd.co/"> carrd
 <a>
 
