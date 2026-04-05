@@ -21,7 +21,7 @@
 
 <p align="center">
 or I.n / saps </p>
-<p align="center"> <a href="https://f1x-0n.carrd.co/"> carrd
+<p align="center"> <a href="https://yngxie-x2.carrd.co/"> carrd
 <a>
 
 <br>
