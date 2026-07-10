@@ -1,6 +1,6 @@
 # FIX ON
 <p align="center">
-# Yang / Jju - %!
+# Evan / Ev - %!
 
 <!--
 **Yeonjunzin/Yeonjunzin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -20,8 +20,8 @@
 <img width="550" src="https://files.catbox.moe/zf9oj3.jpg">
 
 <p align="center">
-or I.n / saps </p>
-<p align="center"> <a href="https://yngxie-x2.carrd.co/"> carrd
+or Han / Pika </p>
+<p align="center"> <a href="[https://h0on1e.carrd.co]"> carrd
 <a>
 
 <br>
