@@ -1,6 +1,6 @@
-# FIX ON
+# RIDE OR DIE
 <p align="center">
-# Evan / Ev - %!
+ Evan / Ev ♡⸝⸝
 
 <!--
 **Yeonjunzin/Yeonjunzin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -17,11 +17,11 @@
 - ⚡ Fun fact: ...
 -->
 <p align="center">
-<img width="550" src="https://files.catbox.moe/zf9oj3.jpg">
+<img width="550" src="https://cdn.phototourl.com/free/2026-07-10-8c99e5b8-e83b-4277-8ae2-d4dad9866776.jpg">
 
 <p align="center">
 or Han / Pika </p>
-<p align="center"> <a href="[https://h0on1e.carrd.co]"> carrd
+<p align="center"> <a href="https://h0on1e.carrd.co"> carrd
 <a>
 
 <br>
